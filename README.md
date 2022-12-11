@@ -1,1 +1,1 @@
-https://Renaissancezq.github.io/rsschool-cv/cv
+https://Renaissancezq.github.io/rsschool-cv/
